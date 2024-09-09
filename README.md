@@ -3,6 +3,8 @@
 - WeChat：farhans
 - http://han.ge
 - http://shuai.blog
+- fim@qq.com
+- tel:15000200068
 
 
 <!---
