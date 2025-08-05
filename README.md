@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @xpp9
-- QQ:46369606;6916911
+- QQ:46369606;691699
 - WeChat：farhans
-- http://han.ge
-- http://shuai.blog
+- http://laohan.net
 - fim@qq.com
 - tel:15000200068
 
